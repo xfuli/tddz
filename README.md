@@ -1,4 +1,4 @@
-土豆导航最新地址发布：tudoudh.icu
+土豆导航最新地址发布：https://tddh.cc/
 
 ✉ 聯絡郵件：tudoufuli@gmail.com  发送任意内容到我们的邮箱，即可最新地址
 
